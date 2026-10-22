@@ -1,1 +1,0 @@
-# jogp-tri
